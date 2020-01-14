@@ -1,0 +1,5 @@
+# Hobbies:
+
+* calisthenics
+* videogames
+* acrobats
